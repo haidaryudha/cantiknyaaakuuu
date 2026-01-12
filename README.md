@@ -1,2 +1,1 @@
-# cantiknyaaakuuu
-buatt kamuuu
+
